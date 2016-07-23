@@ -5,4 +5,3 @@
 
 ![wallerlab_com](https://cloud.githubusercontent.com/assets/13583117/17080879/9774a8c6-5173-11e6-8853-3dccb0bb8120.png)
 
-![ag_waller_eng 001](https://cloud.githubusercontent.com/assets/13583117/17080793/12907304-5170-11e6-8863-dc7d851245c4.jpg)
